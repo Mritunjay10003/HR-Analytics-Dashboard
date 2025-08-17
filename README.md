@@ -96,4 +96,10 @@ Focus: Providing a **holistic view of employees** and attrition trends.
 
 ---
 
+## 📬 Contact
 
+**Mritunjay Singh**  
+📧 Email: mritunjaysingh.as@gmail.com  
+🔗 LinkedIn: [linkedin.com/in/mritunjaysingh10003](https://linkedin.com/in/mritunjaysingh10003)  
+
+> 🧠 *It’s true that AI can mimic the human brain, but it can also outperform us mere humans by discovering complex patterns that no human being could ever process and identify- Ronald M. Razmi*
